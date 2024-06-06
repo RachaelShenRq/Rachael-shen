@@ -1,2 +1,3 @@
 # Rachael-shen
-My first repository on GitHub.
+My first repository on GitHub. Join in BECODE TEAM.
+# Bocode AI scientist 04/06/2024
